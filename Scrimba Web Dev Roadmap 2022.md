@@ -1,4 +1,4 @@
-https://www.craft.do/s/g4BqYy1kmg7GYH 
+Link to pretty note: https://www.craft.do/s/g4BqYy1kmg7GYH 
 --- 
 
 **Notes by Deni Khalikov: @xDeniTech**
