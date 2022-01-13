@@ -1,4 +1,4 @@
-Link to pretty note: https://www.craft.do/s/g4BqYy1kmg7GYH 
+Link to pretty web note for PDF export (file -> export as pdf / print as pdf): https://www.craft.do/s/g4BqYy1kmg7GYH 
 --- 
 
 **Notes by Deni Khalikov: @xDeniTech**
